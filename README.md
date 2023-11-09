@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @am1radkamov
-- 📈📉📊 I’m Treding
-- 🦷 I’m Dental Technician 🦷 ...
+- 📈📉📊 I’m interested in Treding
+- 🦷 I’m Dental Technician 🦷 
 - 👩🏻‍💻 I’m Programmer
 - 📫 How to reach me https://t.me/a_m1radkhamov and instagram a_m1radkhamov
 
